@@ -34,4 +34,4 @@ We are not liable for any losses or damages resulting from use of the app.
 We may update these Terms of Use from time to time. Continued use means you accept the new terms.
 
 ## 9. Contact
-For questions about these Terms, email us at: **support@budgetnest.com**.
+For questions about these Terms, email us at: **budgetnest@outlook.com**.
