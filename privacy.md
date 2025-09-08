@@ -31,10 +31,10 @@ However, no system is 100% secure.
 
 ## Your rights
 Depending on your location, you may have rights to access, correct, or delete your data.  
-Contact us at **support@budgetnest.com**.
+Contact us at **budgetnest@outlook.com**.
 
 ## Changes to this Policy
 We may update this Privacy Policy and will notify users via app updates or notices.
 
 ## Contact us
-If you have questions about this Privacy Policy, email us at: **support@budgetnest.com**.
+If you have questions about this Privacy Policy, email us at: **budgetnest@outlook.com**.
